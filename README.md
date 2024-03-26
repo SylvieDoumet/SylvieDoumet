@@ -1,6 +1,6 @@
 # Hello 👋
 
-## My name is Sylvie Doumet 
+## I'm Sylvie Doumet 
 
 After a professional career in a whole other segment as a teacher and university researcher, I found that I am profoundly bound to design and arts, so I decided to restructure my professional skills in a new fulling way. Travelling abroad since yougest age and living in many different foreign countries has influenced my view on different cultural contexts, artistic traditions and gustos which I would like to integrate in my personal way of designing websites. 
 Inspiration through an exchange with artists, designers and web designers from different fields would be my aim. 
